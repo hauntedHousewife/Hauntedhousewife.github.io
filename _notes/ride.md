@@ -30,4 +30,4 @@ Maybe the resistance was a little high. I got cocky. I'M RESISTING! I started th
 
 But how lucky am I to have a man here to fix my bike for me? This motherfucking guy is incredible. I could've done it myself but sometimes it's fun to make the patriarchy do things for you. Almost as fun as taking their money for doing things they don't even approve of.
 
-He wanted to wait until later, but I was insistent. It was getting close to late and I was one minute away from closing my exercise ring. I need the D(ata). He gets that one thing. 
+He wanted to wait until later, but I was insistent. It was getting late and I was one minute away from closing my exercise ring. I need the D(ata). He gets that one thing. 
