@@ -24,10 +24,10 @@ And so I ride instead. And he watches, asking questions.
 
 What time am I going to bed? 
 
-You, sir, are annoying. I finger my book and turn up the resistance on my little bike, texting my creepy little notes into my phone. Maybe for later , maybe for never, maybe for a cute boy I know. I don't know. I'm reading A Room Of One's Own, between the not-so-subtle interruptions and the irony is not lost on me when I consider that this room is definitely not *my own*. 
+You, sir, are annoying. I finger my book and turn up the resistance on my little bike, texting my creepy little notes into my phone. Maybe for later , maybe for never, maybe for a cute boy I know. I don't know. I'm reading A Room Of One's Own (between the not-so-subtle interruptions) and the irony is not lost on me when I consider that this room is definitely not *my own*. 
 
-Maybe the resistance was a little high. I got cocky. I'M RESISTING!I started thinking that maybe I would just pedal this thing until the wheels fall off, and then one pedal really did fall off. The left one. That will happen after 8 or 9 years of abuse and (sometimes) neglect. Things fall apart. 
+Maybe the resistance was a little high. I got cocky. I'M RESISTING! I started thinking that maybe I would just pedal this thing until the wheels fall off, and then one pedal really did fall off- the left one. That will happen after 8 or 9 years of abuse and (sometimes) neglect. Things fall apart. The goddamned wheels fall off. 
 
 But how lucky am I to have a man here to fix my bike for me? This motherfucking guy is incredible. I could've done it myself but sometimes it's fun to make the patriarchy do things for you. Almost as fun as taking their money for doing things they don't even approve of.
 
-He wanted to wait until later, but I was insistent. It was getting close to midnight and I was one minute away from closing my exercise ring. I need the D(ata). He gets that one thing. 
+He wanted to wait until later, but I was insistent. It was getting close to late and I was one minute away from closing my exercise ring. I need the D(ata). He gets that one thing. 
